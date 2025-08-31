@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me joshuaau66@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I enjoy videogames
+- ⚡ Fun fact: I enjoy training brazilian jiu jitsu
 
 <!---
 aujoshua14/aujoshua14 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
